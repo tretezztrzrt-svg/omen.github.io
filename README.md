@@ -1,2 +1,2 @@
 # omen.github.io
-nope
+no, go away
